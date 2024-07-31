@@ -9,4 +9,4 @@ meu nome é Maikon
   ### Formas de comonicaçao 📧
   00001245611264sp@al.educacao.sp.gov.br.gov
 
- ![]( https://tenor.com/pt-BR/view/ravil27-gif-20704161)
+ ![](https://tenor.com/pt-BR/view/ravil27-gif-20704161)
